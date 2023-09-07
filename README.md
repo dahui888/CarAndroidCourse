@@ -22,4 +22,4 @@
 
 由于个人能力有限，视频中的任何问题都欢迎指正，我会尽快核实并修改。
 
-E-mail：linxu_link@foxmail.com
+E-mail：O88888888@111.com
